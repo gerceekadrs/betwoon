@@ -29,4 +29,4 @@
   👉 <a href="https://t.me/+tgpiwOSMtStjYzM0" target="_blank">https://t.me/+tgpiwOSMtStjYzM0</a>
 </p>
 
-<p class="highlight">🔥 Siz de kazananlar arasındaki yerinizi alın, Betwoon avantajlarını kaçırmayın! 🔥</p>
+<p class="highlight">🔥 Siz de kazananlar arasındaki yerinizi alın, Betwoon avantajlarını kaçırmayın!. 🔥</p>
